@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @avithblax
 - 👀 I’m interested in ... software development and IT
-- 🌱 I’m currently learning ... developing and publishing
+- 🌱 I’m currently learning ... information system management
 - 💞️ I’m looking to collaborate on ... all sites
 - 📫 How to reach me ... avithmbuya45@gmail.com
 - 😄 Pronouns: ... let's get it done
